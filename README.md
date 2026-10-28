@@ -228,4 +228,4 @@ Toribash is fully available as a **free download**, providing all features and u
 Don't miss out on the chance to experience the thrilling world of Toribash. **Download Toribash for free today and start crafting your own epic battles!**
 
 ---
-**Last updated:** 2026-10-27 21:41:17 UTC
+**Last updated:** 2026-10-28 00:52:10 UTC
